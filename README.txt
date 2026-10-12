@@ -10,6 +10,7 @@ Education
 * Bachelor of Arts in Economics (2019): Developed a foundation in economics, analytical thinking, and understanding business and financial systems.
 * MBA in Operations Management (2024): Strengthened my knowledge of operations, process management, efficiency, and business decision-making.
 * Business Analyst Qualification (2025): Expanded my focus towards business analysis, structured problem-solving, and data-driven decision-making.
+* Business Management Leadership Program (2025): Gaining practical exposure to leadership, business management, banking operations, and customer relationship management.
 
 Professional Experience
 
